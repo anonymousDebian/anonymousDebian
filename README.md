@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @anonymousDebian
+- 👋 I’m @anonymousDebian
 - 👀 I’m interested in HAcking
 - 📫 How to reach me ... "YOU CAN'T"
 
